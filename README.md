@@ -37,7 +37,7 @@ This exclusive Whitebridge AI coupon code applies to all subscription plans, inc
 Follow these simple steps to apply your Whitebridge AI coupon code:
 
 ### Step 1: Visit the Whitebridge AI Website
-Navigate to the official Whitebridge AI website at [www.whitebridgeai.com](https://www.whitebridgeai.com) (placeholder URL).
+Navigate to the official Whitebridge AI website at
 
 ### Step 2: Select Your Preferred Plan
 Browse through the available subscription options and select the plan that best suits your needs.
